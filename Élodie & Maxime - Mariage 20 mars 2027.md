@@ -91,11 +91,11 @@ Cotonou, Bénin
 
 Pour honorer notre jour spécial, nous vous invitons à vous vêtir dans les teintes chaudes et nobles de notre palette.
 
-Crème
+Bleu 
 
 Terracotta
 
-Brun
+Noir
 
 ## Confirmer ma Présence
 
